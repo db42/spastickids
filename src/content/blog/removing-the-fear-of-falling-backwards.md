@@ -61,7 +61,3 @@ Around the same time, we began outdoor walks in the same format: flat surfaces, 
 **First principles beat conventional wisdom.** The hesitation around head gear made sense on the surface, but when I actually thought it through, the downside was small and the upside was large. It is worth questioning assumptions, especially ones that were made in a different context.
 
 **Sometimes the pause is part of the progress.** The 2-3 months in between were not lost time. He grew, his balance improved, and when we came back to this problem we were both more ready.
-
-More soon.
-
-Dushyant

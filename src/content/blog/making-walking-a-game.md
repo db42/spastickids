@@ -45,7 +45,3 @@ Over weeks, this became a bridge. The walking habit built inside the game starte
 **Be ready to pivot when the novelty fades.** Game 1 had a shelf life of less than a week. That is fine. It did its job. The goal is not to find one perfect game but to keep experimenting.
 
 **The game is not the destination.** It is a scaffold. The real win is when the confidence built inside the game starts spilling into everyday life, and eventually you do not need the game anymore.
-
-More soon.
-
-Dushyant
