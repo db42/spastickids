@@ -36,7 +36,7 @@ So I decided to try it.
 
 ## The water game returns
 
-We brought back the water game from the previous post, with one addition: my son now wore a head protection helmet.
+We brought back the water game from the [previous post](/blog/making-walking-a-game/), with one addition: my son now wore a head protection helmet.
 
 The setup: figurines on a table at one end, water bucket at the other, 20 feet of straight-line walking in between. Pick up a figurine, walk to the bucket, drop it in. Repeat until they are all dropped in the bucket. Play with the water at the end.
 
