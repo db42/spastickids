@@ -18,6 +18,6 @@ Doctors we consulted and had a good experience with.
 
 ## Eye
 
-- [Dr. Sowmya R](https://www.practo.com/bangalore/doctor/dr-sowmya-r-ophthalmologist/info), Bangalore
+- [Dr. Sowmya R](https://www.practo.com/bangalore/doctor/dr-sowmya-r-ophthalmologist/info), Sankar Eye Hospital, Bangalore
 - [Dr. Geethanjali C.J](https://prabhaeyeclinic.com/doctor/dr-geethanjali-c-j/), Prabha Eye Clinic
 - [Dr. Lavanya G S](https://doctors.narayananethralaya.org/doctorProfile/dr-lavanya-g-s/98), Narayana Nethralaya
